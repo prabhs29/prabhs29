@@ -2,7 +2,7 @@
 - I’m interested in artificial intelligence and machine learning
 - I’m currently learning python
 - I’m looking to collaborate on projects that will enhance my skills 
-- How to reach me through mail @mamta.hgyu@gmail.com 
+- reach me through mail @mamta.hgyu@gmail.com 
 - Pronouns are her/hers
 - Fun fact about me is that I'm hardworking but sometimes i procrastinate
 
